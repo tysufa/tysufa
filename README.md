@@ -8,7 +8,7 @@
 
 - 🌱 I’m currently learning assembly 
 
-- 📫 How to reach me **philemon.penot@gmail.com**
+- 📫 How to reach me **tysufa@protonmail.com**
 
 
 --- 
