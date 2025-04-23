@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning assembly 
 
-- 📫 How to reach me **tysufa@protonmail.com**
+- 📫 How to reach me **cowaseg@protonmail.com**
 
 
 --- 
